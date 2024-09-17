@@ -1,1 +1,0 @@
-Hello, I am Angel Thompson. I currently work as a pharmacy technician at a hospital doing medication histories on patients. 
